@@ -1,1 +1,1 @@
-# your-daily-photograph
+# Your Daily Photograph
